@@ -1,3 +1,3 @@
-# PrincuArtGallery.github.io
+#  Pragyan-Prusty6.github.io
 
  Welcome to my Art Gallery🙂🌻. I hope you like my paintings🎨 and my website 💻. 
